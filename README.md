@@ -38,6 +38,6 @@
 
 结语
 如果你正在寻找日本AV免费资源，不用再犹豫了！我们为你提供最高清、最流畅的影片播放体验，每日更新，完全免费，无广告打扰。现在就开始享受顶级日本AV电影吧！
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtn2611/55555 ）</span>
 
 
